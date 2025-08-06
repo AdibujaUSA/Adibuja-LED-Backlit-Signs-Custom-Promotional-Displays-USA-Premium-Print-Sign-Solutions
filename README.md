@@ -1,4 +1,4 @@
-# Adibuja LED Backlit Signs & Custom Promotional Displays USA | Premium Print & Sign Solutions
+# Adibuja | Marketplace for LED Backlit Signs | Custom Promotional Displays USA | Premium Print & Sign Solutions
 
 Elevate your brand with our high-quality **LED backlit signs USA** and versatile **freestanding promotional signs US** designed for maximum impact. Whether you need **point of purchase displays USA**, **personalized floor decals USA**, or **interactive digital signage USA**, we deliver customized print and display solutions tailored to your business needs.
 
